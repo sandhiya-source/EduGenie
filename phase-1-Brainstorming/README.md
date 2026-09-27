@@ -1,0 +1,1 @@
+# Phase 1: Brainstorming - EduGenie project idea.
